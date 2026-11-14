@@ -226,4 +226,4 @@ The Finals is available as a full free version with all features and updates inc
 Download The Finals today and step into the most exciting multiplayer FPS experience available! Join the action now!
 
 ---
-**Last updated:** 2026-11-14 01:15:39 UTC
+**Last updated:** 2026-11-14 08:33:38 UTC
